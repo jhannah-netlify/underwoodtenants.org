@@ -13,7 +13,7 @@ his fight for housing justice in Omaha:
 
 * 2024-06-28 AP: [Class-action lawsuit claims Omaha Housing Authority violated tenants’ rights for years](https://www.msn.com/en-us/money/companies/class-action-lawsuit-claims-omaha-housing-authority-violated-tenants-rights-for-years/ar-BB1p5fiw?ocid=socialshare)
 
-* 2024-06-12 KMTV [Underwood Tower tenants push for in-home assistance to better living conditions](https://www.3newsnow.com/north-omaha/underwood-tower-tenants-push-for-in-home-assistance-to-better-living-conditions)
+* 2024-06-12 KMTV: [Underwood Tower tenants push for in-home assistance to better living conditions](https://www.3newsnow.com/north-omaha/underwood-tower-tenants-push-for-in-home-assistance-to-better-living-conditions)
 
 Underwood Tower tenants are turning to outside resources to address the living conditions in the Omaha Housing Authority property.
 
@@ -21,9 +21,15 @@ Underwood Tower tenants are turning to outside resources to address the living c
 
 The meeting will focus on residents expressing their concerns, feedback from an attorney on tenant rights and directions on navigating 'Rent Cafe'.
 
+* 2024-05-29 1st Sky Omaha: [Guest: Dr. Umar, Brother Qasim, Hasani Lee](https://www.youtube.com/live/0E8l0YzP_r4?t=2283)
+
 * 2024-05-13 KMTV: ['Think about the people that you love..would you want them living in conditions like this?'](https://www.3newsnow.com/north-omaha/think-about-the-people-that-you-love-would-you-want-them-living-in-conditions-like-this)
 
-* 2024-05-10 1st Sky Omaha [Guest: Hasani Lee](https://www.youtube.com/live/Eu5WpQH0kMc?t=2835s)
+* 2024-05-10 1st Sky Omaha: [Guest: Hasani Lee](https://www.youtube.com/live/Eu5WpQH0kMc?t=2835s)
+
+* 2024-04-30 1st Sky Omaha: [Guest: Hasani Lee](https://www.youtube.com/shorts/3nmD6md_0kk)
+
+* 2024-04-24 1st Sky Omaha: [Guest: Ashlei Spivey, Hasani Lee](https://www.youtube.com/live/lluWDbZmolo?t=4620)
 
 * 2024-04-19 KMTV: [Underwood Tower resident invites private mold inspector to evaluate what she says is an unlivable environment](https://www.3newsnow.com/north-omaha/underwood-tower-resident-invites-private-mold-inspector-to-evaluate-what-she-says-is-an-unlivable-environment)
 
