@@ -23,7 +23,7 @@ The meeting will focus on residents expressing their concerns, feedback from an 
 
 * 2024-05-13 KMTV: ['Think about the people that you love..would you want them living in conditions like this?'](https://www.3newsnow.com/north-omaha/think-about-the-people-that-you-love-would-you-want-them-living-in-conditions-like-this)
 
-* 2024-05-10 1st Sky Omaha [Guest: Hasani Lee](https://www.youtube.com/live/Eu5WpQH0kMc)
+* 2024-05-10 1st Sky Omaha [Guest: Hasani Lee](https://www.youtube.com/live/Eu5WpQH0kMc?t=2835s)
 
 * 2024-04-19 KMTV: [Underwood Tower resident invites private mold inspector to evaluate what she says is an unlivable environment](https://www.3newsnow.com/north-omaha/underwood-tower-resident-invites-private-mold-inspector-to-evaluate-what-she-says-is-an-unlivable-environment)
 
