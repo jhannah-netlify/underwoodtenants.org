@@ -1,13 +1,37 @@
 % Underwood Tenants Group
 
-Hear Hasani Lee talk about his experiences with the Omaha Housing Authority and
-his fight for housing justice in Omaha:
+Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
+and Thai Lee on November 1, 2023 in Omaha Nebraska.
+
+**Our mission** is to inform tenants of their legal rights and to how to
+hold slum landlords accountable for their negligence in treating poor living
+conditions that are hazardous to the safety and wellbeing of the
+tenant(s).
+
+**We focus** on educating the tenant(s) on a process that will get them the
+proper results. We teach our members the local, federal and state laws,
+statutes, ordinances, and legislation that will get results if followed
+properly. We try to give all our members an approach from the legal side
+that will help them build confidence in their approach and in the
+process.
+
+We want all our members to be informed of their legal rights and how to
+properly prepare a case to take into court. We are not the group that
+focuses on teaching our members how to complain. We are the group
+that build our members up and teach them how to stand up for
+themselves legally when no one else would. Our passion is to motivate
+and educate! We have to teach tenants how to be legally prepared
+because no one is coming to save them.
+
+Contact us at 213-602-6077 or [via email](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>).
+For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108. Cash App is [\$UnderWoodTenantGroup](https://cash.app/$UnderWoodTenantGroup).
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qLsBpE8mpqw?start=375" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-[Email Underwood Tenants Group](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>)
 
 ## In the News
+
+* 2024-07-05 1st Sky Omaha (embedded above): [Impromptu Season 7 Break in show - Guests: Hasani Lee](https://www.youtube.com/watch?v=qLsBpE8mpqw&t=375s)
 
 * 2024-07-01 WOWT: [Man takes Omaha Housing Authority to court over father’s living conditions](https://www.msn.com/en-us/money/realestate/man-takes-omaha-housing-authority-to-court-over-father-s-living-conditions/ar-BB1peImo?ocid=socialshare)
 
