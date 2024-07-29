@@ -23,7 +23,7 @@ themselves legally when no one else would. Our passion is to motivate
 and educate! We have to teach tenants how to be legally prepared
 because no one is coming to save them.
 
-Contact us at 213-602-6077 or [via email](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>).
+**Contact us** at 213-602-6077 or [via email](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>).
 For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108. Cash App is [\$UnderWoodTenantGroup](https://cash.app/$UnderWoodTenantGroup).
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qLsBpE8mpqw?start=375" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
