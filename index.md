@@ -31,7 +31,7 @@ For donations please feel free to send all donations to: Hasani Lee, GENERAL DEL
 
 ## In the News / Events
 
-* 2024-07-31 MORE: [Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
+* 2024-07-31 [MORE](https://www.youtube.com/@moremovementinomahaforraci4709): [Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
 
 * 2024-07-05 1st Sky Omaha (embedded above): [Impromptu Season 7 Break in show - Guests: Hasani Lee](https://www.youtube.com/watch?v=qLsBpE8mpqw&t=375s)
 
