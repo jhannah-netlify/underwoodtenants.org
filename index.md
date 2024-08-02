@@ -1,13 +1,5 @@
 % Underwood Tenants Group
 
-## Register today for Wednesday July 31st meeting!
-
-[Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
-Mr. Hasani Lee is advocating for the Omaha Plantation Housing Authority (OHA) to eliminate the bed bugs in the towers. The housing administration has dragged its feet and stonewalled the residents and the community, dealing with the terrible conditions in the units for many years. Mr. Lee will discuss his ongoing challenges in holding that administration accountable, including taking them to court.  OHA has utilized the Omaha Police Department officers to escort advocates from the units who want help with such issues.
-[Register today!](https://givebutter.com/OHABEDBUGS)
-
-## About
-
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
@@ -37,7 +29,9 @@ For donations please feel free to send all donations to: Hasani Lee, GENERAL DEL
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qLsBpE8mpqw?start=375" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 
-## In the News
+## In the News / Events
+
+* 2024-07-31 MORE: [Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
 
 * 2024-07-05 1st Sky Omaha (embedded above): [Impromptu Season 7 Break in show - Guests: Hasani Lee](https://www.youtube.com/watch?v=qLsBpE8mpqw&t=375s)
 
