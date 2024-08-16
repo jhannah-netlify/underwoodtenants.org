@@ -1,5 +1,25 @@
 % Underwood Tenants Group
 
+---
+
+# Come support Hasani Lee in Douglas County Court!
+
+**Aug 27 2024**, at 10am.  
+Courtroom 506, Judge Marlon Polk.  
+[1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)  
+
+This hearing is for:
+
+1. Premises Liability and Injuries due to bedbug's infestation.
+2. Landlord Noncompliance and Filing of False Statements.
+3. Counterclaim to false eviction. 
+
+(We have 3 cases under this judge. Two of them are being set for jury trial and one of them is a counterclaim.)
+
+---
+
+# About
+
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
