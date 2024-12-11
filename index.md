@@ -4,17 +4,16 @@
 
 # Come support Hasani Lee in Douglas County Court!
 
-**Aug 27 2024**, at 10am.  
+**Dec 12 2024**, at 11:15am.  
 Courtroom 506, Judge Marlon Polk.  
 [1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)  
 
-This hearing is for:
-
-1. Premises Liability and Injuries due to bedbug's infestation.
-2. Landlord Noncompliance and Filing of False Statements.
-3. Counterclaim to false eviction. 
-
-(We have 3 cases under this judge. Two of them are being set for jury trial and one of them is a counterclaim.)
+After 5 consecutive hearings, Hasani Lee and Toni Wiggins have presented the court with 
+sufficient evidence and undisputed facts that the court will hear on December 12th and
+determine whether a jury trial is needed in this case that involves Premises Liability
+and injuries due to exposure to bedbugs infestation. The court will also hear the request
+for sanctions due to false misrepresentation and Bad Faith Misconduct on behalf of
+General Counsel Brian Hansen for the Political Subdivision Omaha Housing Authority.
 
 ---
 
@@ -50,6 +49,9 @@ For donations please feel free to send all donations to: Hasani Lee, GENERAL DEL
 
 
 ## In the News / Events
+
+* 2024-12-10 KETV: [Legal Aid of Nebraska seeks temporary injunction for tenant against Omaha Housing Authority
+](https://www.ketv.com/article/nebraska-legal-aid-seeks-temporary-injunction-omaha-housing-authority/63147572)
 
 * 2024-07-31 [MORE](https://www.youtube.com/@moremovementinomahaforraci4709): [Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
 
