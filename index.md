@@ -2,22 +2,24 @@
 
 ---
 
-# Come support Hasani Lee in Douglas County Court!
+## Come support Hasani Lee in Douglas County Court!
 
-**Dec 12 2024**, at 11:15am.  
+**Tue Jan 21 2025**, at 10am.  
 Courtroom 506, Judge Marlon Polk.  
 [1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)  
 
-After 5 consecutive hearings, Hasani Lee and Toni Wiggins have presented the court with 
-sufficient evidence and undisputed facts that the court will hear on December 12th and
-determine whether a jury trial is needed in this case that involves Premises Liability
-and injuries due to exposure to bedbugs infestation. The court will also hear the request
-for sanctions due to false misrepresentation and Bad Faith Misconduct on behalf of
-General Counsel Brian Hansen for the Political Subdivision Omaha Housing Authority.
+Hasani Lee vs Omaha Housing Authority - Summary Judgment Hearing
+
+Guests:<br/>
+Marlon Polk (DC Court) - organizer<br/>
+Janet M. McKittrick (DC Court)<br/>
+mattearnscleaning69@yahoo.com<br/>
+hveik@eslaw.com<br/>
+epsteind@goosmannlaw.com
 
 ---
 
-# About
+## About
 
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
