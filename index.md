@@ -52,7 +52,9 @@ For donations please feel free to send all donations to: Hasani Lee, GENERAL DEL
 
 ## In the News / Events
 
-* 2025-01-05 Flatwater Free Press: [After months of outcry, low-income tenants sue Omaha Housing Authority over bed bug infestation](https://flatwaterfreepress.org/after-months-of-outcry-low-income-tenants-sue-omaha-housing-authority-over-bed-bug-infestation/)
+* 2025-01-06 KMTV: ['This is as bad as I've seen it': attorneys file class action against OHA over bed bugs](https://www.3newsnow.com/north-omaha/this-is-as-bad-as-ive-seen-it-attorneys-file-class-action-against-oha-over-bed-bugs)
+
+* 2025-01-06 Flatwater Free Press: [After months of outcry, low-income tenants sue Omaha Housing Authority over bed bug infestation](https://flatwaterfreepress.org/after-months-of-outcry-low-income-tenants-sue-omaha-housing-authority-over-bed-bug-infestation/)
 
 * 2025-01-06 WOWT: [Omaha Housing Authority sued over ‘intense, sustained’ bed bug infestation](https://www.wowt.com/2025/01/06/omaha-housing-authority-sued-again-over-intense-sustained-bed-bug-infestation/)
 
