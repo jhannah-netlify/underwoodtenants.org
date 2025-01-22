@@ -1,26 +1,5 @@
 % Underwood Tenants Group
 
----
-
-## Come support Hasani Lee in Douglas County Court!
-
-**Tue Jan 21 2025**, at 10am.  
-Courtroom 506, Judge Marlon Polk.  
-[1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)  
-
-Hasani Lee vs Omaha Housing Authority - Summary Judgment Hearing
-
-Guests:<br/>
-Marlon Polk (DC Court) - organizer<br/>
-Janet M. McKittrick (DC Court)<br/>
-mattearnscleaning69@yahoo.com<br/>
-hveik@eslaw.com<br/>
-epsteind@goosmannlaw.com
-
----
-
-## About
-
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
