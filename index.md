@@ -1,5 +1,21 @@
 % Underwood Tenants Group
 
+## Come support Hasani Lee in Douglas County Court!
+
+**Wed Mar 5 2025**, at 10:30am.<br/>
+Courtroom 506, Judge Marlon Polk.<br/>
+[1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)
+
+Guests:<br/>
+Marlon Polk (DC Court) - organizer<br/>
+Janet M. McKittrick (DC Court)<br/>
+mattearnscleaning69@yahoo.com<br/>
+hveik@eslaw.com<br/>
+
+----
+
+## About
+
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
@@ -24,7 +40,8 @@ and educate! We have to teach tenants how to be legally prepared
 because no one is coming to save them.
 
 **Contact us** at 213-602-6077 or [via email](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>).
-For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108. Cash App is [\$UnderWoodTenantGroup](https://cash.app/$UnderWoodTenantGroup).
+For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108.
+Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qLsBpE8mpqw?start=375" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
