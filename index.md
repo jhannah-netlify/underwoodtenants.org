@@ -50,6 +50,8 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 * 2025-01-21 KETV: [Son of former Underwood Tower resident hopes for legal justice, representing himself in lawsuit against OHA](https://www.ketv.com/article/omaha-man-sues-omaha-housing-authority/63500190)
 
+* 2024-01-14 [Omaha City Council Meeting](https://youtu.be/EyRQ47KGP1A)
+
 * 2025-01-07 AP (US News): [After Months of Outcry, Low-Income Tenants Sue Omaha Housing Authority Over Bed Bug Infestation](https://www.usnews.com/news/best-states/nebraska/articles/2025-01-07/after-months-of-outcry-low-income-tenants-sue-omaha-housing-authority-over-bed-bug-infestation)
 
 * 2025-01-07 Newsweek: [Bedbug Scourge in Public Housing Forces Residents to Sue](https://www.newsweek.com/bed-bug-lawsuit-omaha-housing-authority-2011285)
