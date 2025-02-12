@@ -48,6 +48,8 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 ## In the News / Events
 
+* 2025-02-11 KETV: [Nebraska lawmakers hear testimony for bill requiring OHA to address bed bugs](https://www.youtube.com/watch?v=ZSYjrx_5ZrA)
+
 * 2025-01-21 KETV: [Son of former Underwood Tower resident hopes for legal justice, representing himself in lawsuit against OHA](https://www.ketv.com/article/omaha-man-sues-omaha-housing-authority/63500190)
 
 * 2025-01-14 [Omaha City Council Meeting](https://youtu.be/EyRQ47KGP1A?t=1h49m32s) discussion of Omaha Housing Authority pest control.
