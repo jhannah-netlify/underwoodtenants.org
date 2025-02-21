@@ -48,6 +48,8 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 ## In the News / Events
 
+* 2025-02-20 NE Legislature: Hearing for [LB587 - Change provisions relating to tenants' remedies under the Uniform Residential Landlord and Tenant Act](https://nebraskalegislature.gov/bills/view_bill.php?DocumentID=59760)
+
 * 2025-02-11 KETV: [Nebraska lawmakers hear testimony for bill requiring OHA to address bed bugs](https://www.youtube.com/watch?v=ZSYjrx_5ZrA)
 
 * 2025-01-21 KETV: [Son of former Underwood Tower resident hopes for legal justice, representing himself in lawsuit against OHA](https://www.ketv.com/article/omaha-man-sues-omaha-housing-authority/63500190)
