@@ -1,21 +1,5 @@
 % Underwood Tenants Group
 
-## Come support Hasani Lee in Douglas County Court!
-
-**Wed Mar 5 2025**, at 10:30am.<br/>
-Courtroom 506, Judge Marlon Polk.<br/>
-[1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)
-
-Guests:<br/>
-Marlon Polk (DC Court) - organizer<br/>
-Janet M. McKittrick (DC Court)<br/>
-mattearnscleaning69@yahoo.com<br/>
-hveik@eslaw.com<br/>
-
-----
-
-## About
-
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
@@ -39,7 +23,7 @@ themselves legally when no one else would. Our passion is to motivate
 and educate! We have to teach tenants how to be legally prepared
 because no one is coming to save them.
 
-**Contact us** at 213-602-6077 or [via email](mailto:"Underwood Tenants Group" <underwoodtentantsgroup@gmail.com>).
+**Contact us** at 213-602-6077 or [via email](mailto:underwoodtentantsgroup@gmail.com).
 For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108.
 Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
@@ -47,6 +31,8 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 
 ## In the News / Events
+
+* 2025-03-20 KMTV: [New senior living facility planned for downtown Omaha](https://www.3newsnow.com/north-omaha/tackling-the-senior-housing-crisis-new-project-aims-to-provide-affordable-housing-in-downtown#google_vignette)
 
 * 2025-02-20 NE Legislature: Hearing for [LB587 - Change provisions relating to tenants' remedies under the Uniform Residential Landlord and Tenant Act](https://nebraskalegislature.gov/bills/view_bill.php?DocumentID=59760)
 
