@@ -32,6 +32,9 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 ## In the News / Events
 
+* 2025-03-22 Nebraska Examiner: [Bedbug bill aimed at helping Omaha public housing residents gains traction in Legislature
+](https://nebraskaexaminer.com/2025/03/22/bedbug-bill-aimed-at-helping-omaha-public-housing-residents-gains-traction-in-legislature/)
+
 * 2025-03-20 KMTV: [New senior living facility planned for downtown Omaha](https://www.3newsnow.com/north-omaha/tackling-the-senior-housing-crisis-new-project-aims-to-provide-affordable-housing-in-downtown#google_vignette)
 
 * 2025-02-20 NE Legislature: Hearing for [LB587 - Change provisions relating to tenants' remedies under the Uniform Residential Landlord and Tenant Act](https://nebraskalegislature.gov/bills/view_bill.php?DocumentID=59760)
