@@ -68,7 +68,7 @@ Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
 * 2024-07-31 [MORE](https://www.youtube.com/@moremovementinomahaforraci4709): [Omaha Housing Authority & Bed Bugs](https://givebutter.com/OHABEDBUGS)
 
-* 2024-07-05 1st Sky Omaha (embedded above): [Impromptu Season 7 Break in show - Guests: Hasani Lee](https://www.youtube.com/watch?v=qLsBpE8mpqw&t=375s)
+* 2024-07-05 1st Sky Omaha: [Impromptu Season 7 Break in show - Guests: Hasani Lee](https://www.youtube.com/watch?v=qLsBpE8mpqw&t=375s)
 
 * 2024-07-01 WOWT: [Man takes Omaha Housing Authority to court over father’s living conditions](https://www.msn.com/en-us/money/realestate/man-takes-omaha-housing-authority-to-court-over-father-s-living-conditions/ar-BB1peImo?ocid=socialshare)
 
