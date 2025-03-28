@@ -27,10 +27,12 @@ because no one is coming to save them.
 For donations please feel free to send all donations to: Hasani Lee, GENERAL DELIVERY, Omaha NE, 68108.
 Cash App is [\$MrandMsProSe](https://cash.app/$MrandMsProSe).
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cQ9bTMTdNh0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BBvr_WA8E74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 
 ## In the News / Events
+
+* 2025-03-27 KETV: [The son of a disabled veteran and former Omaha Housing Authority tenant continues his fight in court.](https://www.facebook.com/reel/9515740111844541)
 
 * 2025-03-22 Nebraska Examiner: [Bedbug bill aimed at helping Omaha public housing residents gains traction in Legislature
 ](https://nebraskaexaminer.com/2025/03/22/bedbug-bill-aimed-at-helping-omaha-public-housing-residents-gains-traction-in-legislature/)
