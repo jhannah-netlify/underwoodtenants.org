@@ -1,5 +1,76 @@
 % Underwood Tenants Group
 
+## Come support Hasani Lee in Douglas County Court!
+
+---
+
+**Wed July 9 2025**, at 10:00am.<br/>
+Courtroom 506, Judge Marlon Polk.<br/>
+[1701 Farnam St F2, Omaha, NE 68183](https://maps.app.goo.gl/pn46Pn8caBz51Y1E9)
+
+---
+
+FOR IMMEDIATE RELEASE<br/>
+July 1, 2025
+
+**Caretaker and Advocate Files Federal Retaliation Lawsuit Against Omaha Housing
+Authority Following False Statements and Improper Eviction Attempt**
+
+OMAHA, NE — A federal retaliation lawsuit filed by Hasani Lee, the
+court-appointed Power of Attorney and approved live-in caretaker for his
+elderly, disabled father, Henry E. Lee, is moving forward in the Nebraska
+District Court of Douglas County. The case, which centers on false statements
+made by officials at the Omaha Housing Authority (OHA) and a failed eviction
+attempt, is scheduled for a final ruling on July 9, 2025, at 10:00 AM in
+Courtroom 506 before the Honorable Judge Marlon Polk.
+
+Mr. Lee and his wife, Toni Wiggins, allege that OHA engaged in a campaign of
+retaliation and misinformation after they filed multiple complaints about
+uninhabitable conditions at Underwood Tower Apartments—conditions including
+mold, rodent and bed bug infestations, lack of heat, and poor ventilation.
+These issues had persisted for over five years and were well-documented with
+OHA and other agencies.
+
+On April 12, 2024, OHA staff, including CEO Joanie Poore Balk, made false
+statements to the Omaha Police Department, attempting to have Mr. Lee and Ms.
+Wiggins removed from the property through a “Ban and Bar” procedure. The
+attempt failed when officers found no probable cause. OHA also made false
+representations to Fair Housing authorities and deliberately obstructed the
+Reasonable Accommodation process that had already approved Mr. Lee as a live-in
+aide for his father on January 8, 2024.
+
+Despite this approval, OHA issued a 3-Day Notice to Quit and filed an eviction
+complaint that excluded the actual tenant—Mr. Lee’s father—and named only Mr.
+Lee and Ms. Wiggins. On June 20, 2024, Judge Huber of the Douglas County Court
+ruled the eviction improper and found the court lacked jurisdiction.
+
+“This case is about more than just an eviction—it’s about the abuse of power
+and the silencing of those who advocate for the vulnerable,” said Mr. Lee. “We
+stood up for my father and for every tenant who’s been ignored, and OHA tried
+to punish us with lies and legal intimidation. But we’re still standing.”
+
+The lawsuit, filed under Nebraska Revised Statute § 76-1439 and the Fair
+Housing Act (42 U.S.C. § 3617), challenges OHA’s claim of immunity under the
+Political Subdivisions Tort Claims Act (PSTCA) and cites precedent from United
+States v. Hinesville Housing Authority and Osborn v. Kellogg, both of which
+affirm that retaliation and discriminatory interference with housing rights are
+unlawful and actionable.
+
+Legal advocates say the case could set a precedent for protecting non-tenant
+advocates and live-in aides from retaliation by public housing authorities.
+
+Hearing Details:<br/>
+Date: July 9, 2025<br/>
+Time: 10:00 AM<br/>
+Location: Nebraska District Court of Douglas County, Courtroom 506<br/>
+Judge: Hon. Marlon Polk<br/>
+Contact:<br/>
+Hasani Lee & Toni Wiggins<br/>
+📞 (213) 602-6077<br/>
+📧 mattearnscleaning69@yahoo.com
+
+## About
+
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
 
