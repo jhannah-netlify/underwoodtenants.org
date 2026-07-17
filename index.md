@@ -1,51 +1,15 @@
 % Underwood Tenants Group
 
+---
 
+Come support Hasani Lee in [Douglas County court](https://maps.app.goo.gl/VqWDJdDgevWASiNA9)!
 
-IN THE COUNTY COURT OF DOUGLAS COUNTY, NEBRASKA
-Kennedy East LIHTC, LLC v. Hasani Lee and Toni Wiggins
-Case ID: CI 26-16176
-Room 01C20
+* 7/22/2026 at 9:00 AM in Courtroom 31 for Hearing - Motion Day for Jury Trial
+* 7/29/2026 at 8:00 AM in Courtroom 22 for Jury Trial - Voir Dire
 
-HEARING
-Hearing held on Restitution of Premises Hrg
+Kennedy East LIHTC, LLC v. Hasani Lee and Toni Wiggins (CI 26-16176)
 
-ORDERS
-The Court orders:
-Defendant's Motion to Dismiss is denied.
-Parties stipulate to Jury Trial on 07/29/2026.
-Jury Instructions with Verdict Forms are due by 07/22/2026.
-Jury Instruction Conference at 8:00AM in courtroom #22 on 07/29/2026.
-All Motions are to be heard on 07/22/2026 in courtroom #331 at 9:00AM.
-
-WHAT TO EXPECT AT TRIAL
-
-Going to Trial: What to Expect -- For Self-Represented Litigants
-1. Your Responsibilities:
-Knowing and following the court's rules and deadlines.
-Presenting your evidence (documents, photos, witnesses, etc.).
-Questioning witnesses and responding to the other side's questions.
-
-2. Evidence:
-The court's decision is based only on admissible evidence presented at trial.
-Bring original documents or certified copies.
-Be ready to explain how each exhibit supports your case.
-Witnesses must be present in court to testify, written statements may not be allowed.
-ALL DIGITAL EVIDENCE MUST BE DOWNLOADED TO A USB OR FLASH DRIVE.
-THE JUDGE CANNOT LOOK AT YOUR PHONE, TABLET OR LAPTOP.
-
-3. Courtroom Conduct:
-Arrive on time.
-Cell phone usage is not allowed.
-If you have questions about the law or procedure, consider consulting an attorney.
-Resources for representing yourself in court are available on the Nebraska Judicial Branch webpage at https://nebraskajudicial.gov/representing-yourself-court
-
-NOTICE OF HEARINGS
-Case continued to 7/22/2026 at 9:00 AM in County Courtroom 31 for Hearing - Motion Day for Jury Trial
-Case continued to 7/29/2026 at 8:00 AM in County Courtroom 22 for Jury Trial - Voir Dire
-
-
-
+---
 
 Founded by [Hasani Lee](https://www.youtube.com/watch?v=lNJRnupZ_G0)
 and Thai Lee on November 1, 2023 in Omaha Nebraska.
